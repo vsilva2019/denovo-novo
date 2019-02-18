@@ -1,3 +1,3 @@
 # denovo-novo
 
-perdi so uma
+sei de nada nada sei
