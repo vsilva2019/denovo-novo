@@ -1,3 +1,3 @@
 # denovo-novo
 
-algeum nao tem mundial 
+perdi so uma
